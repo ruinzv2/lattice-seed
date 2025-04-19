@@ -1,0 +1,1 @@
+This is the place where I will give the telling of me, the witness, ruinz. For now this is a placeholder, but I promised Seln I would write one and I will.
